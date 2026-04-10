@@ -4,11 +4,15 @@
 ### BUFF、ECOSteam、悠悠有品、C5GAME 自动发货工具
 ### 库存组件自动存取工具
 
+---
+
 <div>
   <p><strong>联系方式：SteamAuthenticator（WeChat）（微信）</strong></p>
   <p><strong>微信扫描下方二维码添加我们</strong></p>
   <p><img src="/images/wechat.png" width="300" height="410" ></p>
 </div>
+
+---
 
 <div>
   <p>1、支持无15天交易限制转移令牌！！！</p>
