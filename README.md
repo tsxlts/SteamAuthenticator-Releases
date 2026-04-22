@@ -14,7 +14,7 @@
 
 ---
 
-> 👉 **推荐使用代理  🚀 [一分机场](https://xn--4gqx1hgtfdmt.com/#/register?code=HmVvjNN1) ** 👈
+> 👉 **推荐使用代理  🚀 [一分机场](https://xn--4gqx1hgtfdmt.com/#/register?code=HmVvjNN1)** 👈
 
 ---
 
